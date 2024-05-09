@@ -1,4 +1,6 @@
 # pinkshadowpinionprop_RWD
-Random Working Directory, Until Proper Directory Slot.. slŰt lol
 
-Really just a bowl full of minos
+Random Working Directory, Until Proper Directory Slot..
+Random Working Directory, Until Proper Directory Slot..
+Random Working Directory, Until Proper Directory Slot..
+Random Working Directory, Until Proper Directory Slot..
